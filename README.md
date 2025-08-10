@@ -1,5 +1,5 @@
 # Camp Plan Privacy Policy
-Effective Date: June 7, 2025
+Effective Date: August 10, 2025
 
 Shawn Murphy, author of Camp Plan ("I", “we,” “our,” or “us”) is committed to protecting your privacy. This Privacy Policy explains how we handle your information when you use Camp Plan.
 
